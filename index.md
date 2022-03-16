@@ -1,3 +1,0 @@
-### joywhophotography
-
-todo
